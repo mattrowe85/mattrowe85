@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mattrowe85
-- 👀 I’m interested in creating a coin
-- 🌱 I’m currently learning how this workd
-- 💞️ I’m looking to collaborate on peaceful people
+- 👀 BZ, Marine Corps COMMtech Ex-crypto dyslexic with numbers ff.
+- 🌱 I’m currently learning to code simple on a basic level
+- 💞️ I’m looking to collaborate with any one who can wants peace.
 - 📫 How to reach me matt.rowe85@me.com
 
 <!---
